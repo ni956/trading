@@ -1,0 +1,2 @@
+# trading
+trading makes money
